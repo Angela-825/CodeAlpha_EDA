@@ -109,7 +109,7 @@ CodeAlpha_EDA/
 
 ## 11. Video Walkthrough
 
-
+https://lnkd.in/p/eihyNnep
 
 ## 12. Author
 
